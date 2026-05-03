@@ -6,3 +6,5 @@ Heyy, I'm Jort, I am a 17 year old wanna-be developer from the Netherlands who l
 I’m really into smart home automation and AI, and I’m always messing around with new tech to see what it can do. Hopefully, you’ll enjoy what I’ve built and find a great use-case for it in your own life! ❤️
 
 Me with my doggies 🐶 (Used AI for privacy reasons :D) -->
+
+### Looking for someone to professionally draw this image & my pfp in the same style! Contact me via email/Discord :D
